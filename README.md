@@ -1,1 +1,1 @@
-# EML6934_Spring_2022
+# EML6934_2022Spring
